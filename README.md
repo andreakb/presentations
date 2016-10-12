@@ -1,1 +1,1 @@
-# Recent presentations from internal workshops and external conferences
+Recent presentations from internal workshops and external conferences
